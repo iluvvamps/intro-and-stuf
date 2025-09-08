@@ -2,11 +2,7 @@
 
 # hellu ^_^
 
-more info abt me     ,  [carrd](https://iluvsweetsz.carrd.co)
-
-
-
-![image alt](20250908_203237.png) 
+more info abt me     ,  [carrd](https://iluvsweetsz.carrd.co) 
 
 
 
