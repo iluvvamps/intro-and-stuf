@@ -2,7 +2,7 @@
 
 # hellu ^_^
 
-more info abt me     ,  [carrd](https://iluvsweetsz.carrd.co) 
+more info abt me     ,  [carrd](https://tgabsl.carrd.co/) 
 
 ![image alt](https://github.com/iluvvamps/intro-and-stuf/blob/1a8f61c53d8b38238da615db61a0da32fd581c82/20250908_203237.png) 
 
